@@ -1,0 +1,1 @@
+# binetype.github.io
